@@ -1,4 +1,4 @@
-L'encre coule, le sang se répand ; la feuille buvard
+suavemente besame de elvis crespo
 Absorbe l'émotion, sac d'images dans ma mémoire
 Je parle de ce que mes proches vivent et de ce que je vois :
 Des mecs coulés par le désespoir qui partent à la dérive
